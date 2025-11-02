@@ -1,4 +1,4 @@
-👋 Hi, I’m Zain Alkhazraji (@ZainOffical90)
+👋 Hi, I’m Zain AlKhazraji
 
 🤖 I’m passionate about Artificial Intelligence, Automation, and Smart Systems
 
